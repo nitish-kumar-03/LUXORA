@@ -1,1 +1,1 @@
-# LUXORA is a premium marketplace for collectors and enthusiasts to buy and sell exclusive, rare, and high-value items. From vintage collectibles to luxury goods, Rareify connects you with the most unique treasures worldwide, ensuring authenticity and exclusivity at every step.
+# LUXORA is a premium marketplace for collectors and enthusiasts to buy and sell exclusive, rare, and high-value items. From vintage collectibles to luxury goods, it connects you with the most unique treasures worldwide, ensuring authenticity and exclusivity at every step.
